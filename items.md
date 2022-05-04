@@ -3,8 +3,10 @@ Monsterek
 Kanapka Grubego
 Marker
 JBL Artura
-Legitymacja adama czyża
+Śliniaczek Tomusia
+Portfel adama czyża
 Spalony burger Humana
 Maszynka do wąsa gontarka
 Kaczucha Technischools
-Nóź Wiejaka
+Łom Wiejaka
+Karta vizji
