@@ -10,3 +10,4 @@
 - Kaczucha Technischools
 - Łom Wiejaka
 - Karta vizji
+- Znicz 
